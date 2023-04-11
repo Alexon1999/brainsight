@@ -6,7 +6,7 @@ https://www.brainsight.tech
 
 ## Video presentation
 
-[Video presentation](https://share.vidyard.com/watch/EmkyNMCKvBsdXcpYXQuqap?)
+[Brainsight - Video presentation](https://share.vidyard.com/watch/EmkyNMCKvBsdXcpYXQuqap?)
 
 ## Additional information:
 
